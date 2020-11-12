@@ -1,4 +1,4 @@
-# BOT Irfan X Gilang X Ryan
+# Bot Irfan X Gilang X Ryan
 BOT WHATSAPP LINUX CODER BY @irfnadi_
 
 ### Alat dan Bahan
